@@ -1,4 +1,4 @@
-# 
+# best NFT Flip Bot for opensea sniper bot | gas-fee-estimation & slippage-control is the best opensea sniper bot, featuring gas-fee-estimation and slippage-control. Fast, smart,
 
 
 
